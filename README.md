@@ -1,1 +1,1 @@
-**Systemic Altruism! Ass**
+**Systemic Altruism!**
